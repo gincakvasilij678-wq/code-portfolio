@@ -1,0 +1,1 @@
+https://github.com/gincakvasilij678-wq/git-notice.git
